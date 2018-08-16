@@ -1,1 +1,0 @@
-# pariosa.github.io
